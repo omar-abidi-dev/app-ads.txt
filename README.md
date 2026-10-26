@@ -1,1 +1,1 @@
-For any inquery conatct us in: londonhanwi@gmail.com
+For any inquery conatct us in: contact.omarabidi@gmail.com
